@@ -2,9 +2,11 @@
 <h1 align="center">Здарова 👋, I'm Vasya Tukhachevsky</h1>
 <h3 align="center">I am Russian living in Turkiye I’m currently working on Translation of all slavic languages and turkish, german, french for systems, softwares, games and also helping to teach that languages for who wants to learn. lastly making photoshop etc. (this is my cat on my pp 🐱🥰) </h3>
 
-- 📫 How to reach me **discord**
+⭐🎸Hobies I love playing electro guitar and acustic, listening music, (especially death metal) writing new notes, reading book about human psychology and learning something new 
 
-- ⚡ Fun fact **I have 5 cats 😻**
+⭐📫 How to reach me **discord**
+
+⭐⚡ Fun fact **I have 5 cats 😻**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
