@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GarenForWin01
-- 👀 I’m interested in Translation of all slavic languages and some turkish german and french stuff for systems etc
+- 👀 I’m interested in Translation of all slavic languages and some turkish german and french stuff for systems softvares etc
 - 📫 you can reach me from discord vasyarus. Вы можете связаться со мной в Discord
 
 <!---
