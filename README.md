@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **discord**
 
-- ⚡ Fun fact **I'm playing lot of games u can add me for playing together **
+- ⚡ Fun fact **I have 5 cats 😻**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
