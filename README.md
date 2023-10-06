@@ -1,10 +1,10 @@
  [![MasterHead](https://w0.peakpx.com/wallpaper/369/147/HD-wallpaper-footballer-red-grass-cat-flag-animal-ball-green-svetlana-valyiskaya-funny-white-pisica-blue.jpg)
 <h1 align="center">Здарова 👋, I'm Vasya Tukhachevsky</h1>
-<h3 align="center">I am Russian living in Turkiye I’m currently working on Translation of all slavic languages and turkish german and french for systems softwares and also making photoshoping (this is my cat on my pp 🐱🥰) etc</h3>
+<h3 align="center">I am Russian living in Turkiye I’m currently working on Translation of all slavic languages and turkish, german, french for systems, softwares, games and also helping to teach that languages for who wants to learn. lastly making photoshop etc. (this is my cat on my pp 🐱🥰) </h3>
 
 - 📫 How to reach me **discord**
 
-- ⚡ Fun fact **Garen main lol**
+- ⚡ Fun fact **I'm playing lot of games u can add me for playing together **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
